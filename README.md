@@ -2,6 +2,8 @@
 
 ## Play Sprunki Relish Game Online Free
 
+**👉👉**  [Play Sprunki Relish Now - It's Flavorfully Free!](https://sprunkiscrunkly.com/sprunki-relish/#play-now "Sprunki Relish")
+
 ![Sprunki Relish](https://s.sprunkiscrunkly.com/img/games/sprunki-relish.png "Sprunki Relish")
 
 Welcome to Sprunki Relish - where quirky beats meet flavorful creativity! Sprunki Relish is an innovative music game that transforms sound creation into a vibrant adventure. Each level in Sprunki Relish presents unique challenges where players combine different relish-inspired elements to create playful soundscapes.
